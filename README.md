@@ -1,6 +1,6 @@
 # hello-world
-First Hello Ever;
-//know some basis, want to learn new languages and maybe help change the world!
-//
+First Hello Ever!
 
-And like that?
+Know some basis and would like to learn more!
+
+There u go my lo
